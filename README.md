@@ -1,0 +1,1 @@
+# Rey's vocabulary list
